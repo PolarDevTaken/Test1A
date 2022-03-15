@@ -1,8 +1,15 @@
-whe n you look me inthe eyes tell me
-how you really feel and tell me
-if  i should try
-if hi i should hi/try
+hey
+hey
+hey
 
-wheny ou stand here tell me what im standing here for
-i dont know how you look
-but you're beautiful
+its all alright
+(it was always alright)
+
+im just a programist
+living in the world of cybernetic
+kinda intrested in music
+writing this on impulse currently
+imma make a seriousr eadme later
+since now im kind of in a middle
+of a class
+(class) ((class)) (((classsss)))
